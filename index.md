@@ -36,4 +36,4 @@ Bu gizlilik politikası zaman zaman güncellenebilir. Güncellemeler bu sayfada 
 
 ## 7. İletişim
 
-Bu gizlilik politikasıyla ilgili sorularınız için: [E-POSTA ADRESİNİ BURAYA YAZ]
+Bu gizlilik politikasıyla ilgili sorularınız için: uskyazilim@gmail.com
